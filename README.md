@@ -1,0 +1,2 @@
+# aledravexo
+terminalo porfas
